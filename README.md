@@ -1,1 +1,0 @@
-# daly-reading-bible-study-english-plan
